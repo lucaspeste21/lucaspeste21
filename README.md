@@ -1,4 +1,3 @@
-### Hi there 👋
 
 ### olá! Eu sou o Lucas Lima 🤙
 
